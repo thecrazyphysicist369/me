@@ -1,4 +1,9 @@
 # Shaun
 
 Full name **Soujanya Ray**
-My Description
+
+## Education
+
+### The Scholar EMHS
+_2000-2013_
+
