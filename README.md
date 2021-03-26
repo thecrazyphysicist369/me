@@ -5,7 +5,7 @@
 
 ## Education
 
-### The Scholar EMHS.
+### [The Scholar EMHS.](https://www.facebook.com/scholarislampur/)
 _2000-2013_
 
 ### Apeejay School, Park Street.
