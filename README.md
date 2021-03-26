@@ -1,7 +1,7 @@
 # Shaun
 
 **Soujanya Ray**
-![]()
+![](https://github.com/thecrazyphysicist369/me/blob/main/images/IMG_3614.JPG)
 
 ## Education
 
