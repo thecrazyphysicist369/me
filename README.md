@@ -1,6 +1,7 @@
 # Shaun
 
-Full name **Soujanya Ray**
+**Soujanya Ray**
+![]()
 
 ## Education
 
