@@ -16,3 +16,14 @@ _2015-2019_
 
 ### National Institute of Technology, Sikkim.
 _2020-present_
+
+## Work
+
+## Clubs
+
+### Developer Student Clubs
+
+### GNX Not Nixal
+
+### Satish Dhawan Space Cell
+
