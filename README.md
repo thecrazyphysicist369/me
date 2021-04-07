@@ -11,7 +11,7 @@ _2000-2013_
 ### [Apeejay School, Park Street.](http://www.apeejayschool.in/)
 _2013-2015_
 
-### Netaji Subhash Engineering College.
+### [Netaji Subhash Engineering College.](https://www.nsec.ac.in/)
 _2015-2019_
 
 ### National Institute of Technology, Sikkim.
