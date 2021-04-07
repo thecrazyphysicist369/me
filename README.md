@@ -8,7 +8,7 @@
 ### [The Scholar EMHS.](https://www.facebook.com/scholarislampur/)
 _2000-2013_
 
-### Apeejay School, Park Street.
+### [Apeejay School, Park Street.](http://www.apeejayschool.in/)
 _2013-2015_
 
 ### Netaji Subhash Engineering College.
