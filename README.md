@@ -14,7 +14,7 @@ _2013-2015_
 ### [Netaji Subhash Engineering College.](https://www.nsec.ac.in/)
 _2015-2019_
 
-### National Institute of Technology, Sikkim.
+### [National Institute of Technology, Sikkim.](https://www.nitsikkim.ac.in/)
 _2020-present_
 
 ## Work
