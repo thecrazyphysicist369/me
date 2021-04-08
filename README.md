@@ -7,10 +7,12 @@
 
 ### [The Scholar EMHS.](https://www.facebook.com/scholarislampur/)
 _2000-2013_
+
 Studied Math, Science, Computer Application, English & Social Science.
 
 ### [Apeejay School, Park Street.](http://www.apeejayschool.in/)
 _2013-2015_
+
 Studied Math, Physics, Chemistry, Computer Science & English.
 
 ### [Netaji Subhash Engineering College.](https://www.nsec.ac.in/)
