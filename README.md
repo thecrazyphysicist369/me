@@ -20,10 +20,12 @@ _2015-2019_
 
 Studied Computer Science and Engineering.
 
-*Data Structures and Algorithms
-Design and Analysis of Algorithms
-Theory of Computaion &
-Operating Systems*
+*Data Structures and Algorithms*
+*Design and Analysis of Algorithms*
+*Theory of Computaion*
+*Software Designing*
+*Artificial Intelligence &*
+*Operating Systems*
 
 ### [National Institute of Technology, Sikkim.](https://www.nitsikkim.ac.in/)
 _2020-present_
