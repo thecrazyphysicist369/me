@@ -18,7 +18,8 @@ Studied Math, Physics, Chemistry, Computer Science & English.
 ### [Netaji Subhash Engineering College.](https://www.nsec.ac.in/)
 _2015-2019_
 
-Studied Computer Science and Engineering.
+#### Bachelor in Technology
+**Computer Science and Engineering**
 
 *Data Structures and Algorithms*
 
